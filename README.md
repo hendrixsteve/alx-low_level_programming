@@ -1,1 +1,1 @@
-my problems are been solved steadily 
+do what what u know best people 
